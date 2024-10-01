@@ -21,3 +21,5 @@
 ![Afiche Ready Player One](https://github.com/user-attachments/assets/e107ba93-21d6-4dcd-952f-0751de2f61b4)
 ![Afiche Ready Player One 2](https://github.com/user-attachments/assets/e042fe83-753d-41f0-941f-35c22dbc11d6)
 ![Afiche Ready Player One 4](https://github.com/user-attachments/assets/026705fe-5f7f-4148-a12f-6202ea617754)
+![PEEK](https://github.com/user-attachments/assets/a00e66a8-bbd8-408e-8785-193d597e4aa1)
+![Autora](https://github.com/user-attachments/assets/8fb18037-71d4-49da-9cb6-ee66dda1b93b)
